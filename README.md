@@ -29,5 +29,5 @@ My signature strengths:
 ✅ Facilitation
 With the right strategy, you don’t chase opportunities — you attract them. 
 Need help managing your career's master plan? 
-Need GitHub coaching to make your profile relevant in your job search?
+Looking for your GitHub profile to be relevant in today's job market?
 Email me: kristen.coria@resumeinnovators.com for more info.
